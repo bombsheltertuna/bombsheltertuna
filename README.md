@@ -3,7 +3,7 @@
 <br>
 <i>"From the very beginning, one of us was destined to die... and that someone was going to be me"</i>
 <br>
- <img width="30%" src="https://i.postimg.cc/8zvMtPtG/eiji-for-hub.png">
+ <img width="30%" src="https://i.postimg.cc/qqbmM8cG/bombsheltercheese.jpg">
 
 <br>
 Chronic pain + poor sleep, I am dying at times so energy levels vary a lot ⋆.
