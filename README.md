@@ -1,16 +1,26 @@
-## Hi there 👋
+<div align="center">
+𓆩✦𓆪
+<br>
+<i>"From the very beginning, one of us was destined to die... and that someone was going to be me"</i>
+<br>
+ <img width="30%" src="https://i.postimg.cc/8zvMtPtG/eiji-for-hub.png">
 
-<!--
-**bombsheltertuna/bombsheltertuna** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<br>
+Chronic pain + poor sleep, I am dying at times so energy levels vary a lot ⋆.
+<br>
+I need my space sometimes but generally enjoy conversation 𓂃₊ ⊹
+<br>
+I love my friends and will be usually seen sitting with them, if I'm alone tho c+h.
+<br>
+ ࣪˖ ⊹ ──────────────────  -‘๑’- ───────────────────  ⊹ ࣪ ˖
+<br>
+<br>
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<a href="https://eunlem.atabook.org">Atabook</a>ㅤ◇ㅤ<a href="https://rentry.co/DegreesOfLewdityPlus">Degrees of Rentry</a>ㅤ◇ㅤ<a href="https://sadlem0n.straw.page">wip Strawpage</a>
+<br>
+<br>
+!! Sero, Alexs and I are NOT dating!! I am their alpha tho ♡
+<br>
+<br>
+ᨐฅ
+</div>
