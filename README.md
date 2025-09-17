@@ -13,13 +13,13 @@ main: <a href=https://github.com/Mmlemonade">Mmlemonade</a>
 <br>
 <br>
 Busy dryhumping my oomfs!! 
- 
 <br>
-If youu aren't Alexs or Sero GET OUT, THE YAOI BED IS FULL.
+If u aren't Alexs or Sero GET OUT, THE YAOI BED IS FULL.
+<br>
+dude piss grass season again i cant do this i
 <br>
 <img width="30%" src="https://i.postimg.cc/8CmqWXhp/dollsatitagain.jpg">
 <br>
-𝓯𝓻𝓮𝓪𝓴𝔂
-<br>
+
 
 </div>
