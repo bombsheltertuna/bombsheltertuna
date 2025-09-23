@@ -9,7 +9,7 @@ Please donate me more tuna, its for a good cause
 ⊹ ࣪ ﹏𓊝﹏𓂁﹏⊹ ࣪ ˖
 <br>
 <br>
-main: <a href=https://github.com/Mmlemonade">Mmlemonade</a>
+main: <a href=https://github.com/Mmlemonade>Mmlemonade</a>
 <br>
 <br>
 ₊⊹ Busy dryhumping my oomfs!! 
