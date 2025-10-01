@@ -14,10 +14,6 @@ main: <a href=https://github.com/Mmlemonade>Mmlemonade</a>
 <br>
 ₊⊹ Busy dryhumping my oomfs!! 
 <br>
-If u aren't Alexs or Sero GET OUT, the yaoi bed is FULL.
-<br>
-dude piss grass season again i cant do this i
-<br>
 <img width="30%" src="https://i.postimg.cc/8CmqWXhp/dollsatitagain.jpg">
 <br>
 
